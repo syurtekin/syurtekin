@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [https://syurtekin1996.medium.com/](https://syurtekin1996.medium.com/)
 
-- 📫 How to reach me **syurtekin@gmail.com**
+- 📫 How to reach me **sevvalayse.yurtekin@stu.khas.edu.tr**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
